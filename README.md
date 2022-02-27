@@ -9,6 +9,8 @@ Notable quotes:
 * "I always have a wonderful time, wherever I am, whomever I'm with."
 
 ## Wanna watch
+* [It's a wonderful life](https://www.imdb.com/title/tt0038650/)
+* [12 angry men](https://www.imdb.com/title/tt0050083/)
 * [The Philadelphia Story](https://www.imdb.com/title/tt0032904/)
 * [The treasure of Sierra Madre](https://www.imdb.com/title/tt0040897/)
 * [All about eve](https://www.imdb.com/title/tt0042192/)
